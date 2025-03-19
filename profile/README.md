@@ -1,5 +1,5 @@
 ## Hi there 👋
-## welcome to komunitas IT oreng mathureh
+## welcome to komunitas IT oreng madura
 
 
 <!--
